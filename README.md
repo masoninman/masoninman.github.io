@@ -1,1 +1,1 @@
-# masoninman.github.io
+# Mason Inman's personal page
